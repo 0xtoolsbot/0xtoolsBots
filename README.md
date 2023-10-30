@@ -4,7 +4,7 @@
 
 📝 We're committed to the blockchain, DeFi, and the future of finance. Let's collaborate and build a faster, seamless trading experience.
 
-📫 Reach us at [oxtools.bots@gmail.com] for inquiries, collaborations, or just to chat crypto. 
+📫 Reach us on our Official Socials for inquiries, collaborations, or just to chat crypto. 
 
 🌐 Explore more about our projects and vision: Website:(https
 
