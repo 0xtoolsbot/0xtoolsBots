@@ -10,7 +10,7 @@
 
 🌐Join the revolution:
 
-Telegram: https://t.me/oxtoolsbots_eth
+Telegram:  https://t.me/ZeroXTools_eth
 
 Twitter [X]: https://x.com/0xtoolsBots?t=NP2foKZiihHn7tfpGBvdFg&s=09
 
