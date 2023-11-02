@@ -6,7 +6,7 @@
 
 📫 Reach us on our Official Socials for inquiries, collaborations, or just to chat crypto. 
 
-🌐 Explore more about our projects and vision: Website:(https
+🌐 Explore more about our projects and vision: Website: https://0xtools.vip/ 
 
 🌐Join the revolution:
 
